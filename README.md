@@ -1,1 +1,1 @@
-
+Conceived, performed online research, and co-authored a 30 page research paper entitled "_Intergenerational Mobility Among Graduates: The Effect of Median Household Income on Median Earnings_". Summarized results in a presentation before a student audience.
